@@ -9,7 +9,7 @@ Aqui em meu GitHub:
 #### 📧 Pode se contatar comigo por:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/richard-alves-1aa0b7327/)
 
-*Estou disposto a encontrar meu primeiro estágio/emprego. :)*
+*Estou empenhado em encontrar meu primeiro estágio/emprego. :)*
 
 #### 📜 Github stats:
 
